@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning web development, oh and oh boy! JavaScript is definitely showing me flames... but i got this!!
 - 💞️ I’m looking to collaborate on creating my own video game, that is my biggest goal i want to achieve.
 - 📫 How to reach me you can send me an email tapisilebohang@gmail.com or call me (0672188104)
-- 😄 Pronouns: oh well...
+- 😄 Pronouns: she/her
 - ⚡ Fun fact: i started watching football because i saw a short clip of vini jr scoring a big goal, definitely blew my  mind to a point i started watching football and being a huge fan of Real Madrid, hehehe not really a fun fact but it is to me.. oh and HALA MADRID!!
 
 <!---
